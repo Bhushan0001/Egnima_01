@@ -1,3 +1,2 @@
-I love you gunjan
-Miss You
-O yeah baby
+Gunjan is not good for bhushi
+tari bhau la khaj ae 
